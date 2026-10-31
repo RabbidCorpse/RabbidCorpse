@@ -1,6 +1,6 @@
 Lee, William Or Afton (Lock or Spring when springtrap)
 
-We're extremely mentally unwell, be patient, We're in a really bad spot right now so iwec at all times (Temporary)
+Some of us are pretty immature so just a heads up
 
 We're Bodily 17 but ALTERWISE I'm an ADULT
 
